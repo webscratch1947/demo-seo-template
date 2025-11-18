@@ -1,1 +1,0 @@
-# demo-seo-template
